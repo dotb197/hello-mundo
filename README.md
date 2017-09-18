@@ -1,4 +1,4 @@
 # hello-mundo
 ayudeme xd
-soy de 
-cartagena and  go por mas 
+a serguir adelante quiero llagar a ser una persona de exito y para logra  necesito de la ayuda que ustedes me puede brindar
+a mi a seguir adelante en este camino :V
